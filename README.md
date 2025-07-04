@@ -42,11 +42,16 @@ Home to NWOSU, sand dunes, the Salt Plains, a thriving rodeo culture, and year-r
 
 Book Your Stay
 
-📞 Call: (580) 609-6291🌐 Visit: https://www.okwelcomehome.com
+📞 Call: (580) 609-6291🌐 Visit: www.okwelcomehome.com
 
 Connect and Learn More
 
-👉 Follow us on LinkedIn: OK Welcome Home Hotel LinkedIn Page👉 Read our reviews on TripAdvisor: OK Welcome Home Hotel TripAdvisor👉 Find us on Google Maps: OK Welcome Home Hotel Google Maps
-👉 Check availability and rates on Booking.com: OK Welcome Home Hotel Booking.com
+LinkedIn: OK Welcome Home Hotel LinkedIn Page
+
+TripAdvisor: OK Welcome Home Hotel TripAdvisor
+
+Google Maps: OK Welcome Home Hotel on Google Maps
+
+Booking.com: OK Welcome Home Hotel on Booking.com
 
 We look forward to welcoming you to Alva, Oklahoma!
