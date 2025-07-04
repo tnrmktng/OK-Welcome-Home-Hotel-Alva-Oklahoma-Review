@@ -4,7 +4,7 @@ Comfortable, Convenient Lodging in Alva, Oklahoma (73717)
 
 Looking for lodging in Alva, Oklahoma? OK Welcome Home Hotel is your comfortable, convenient home away from home for business travelers, families, contractors, and visitors exploring the area.
 
-📞 Phone: (580) 609-6291🌐 Website: https://www.okwelcomehome.com
+📞 Phone: (580) 609-6291🌐 Website: www.okwelcomehome.com
 
 Why Stay at OK Welcome Home Hotel?
 
@@ -46,12 +46,12 @@ Book Your Stay
 
 Connect and Learn More
 
-LinkedIn: OK Welcome Home Hotel LinkedIn Page
+OK Welcome Home Hotel LinkedIn Page
 
-TripAdvisor: OK Welcome Home Hotel TripAdvisor
+OK Welcome Home Hotel TripAdvisor
 
-Google Maps: OK Welcome Home Hotel on Google Maps
+OK Welcome Home Hotel on Google Maps
 
-Booking.com: OK Welcome Home Hotel on Booking.com
+OK Welcome Home Hotel on Booking.com
 
 We look forward to welcoming you to Alva, Oklahoma!
