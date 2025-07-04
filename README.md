@@ -47,11 +47,6 @@ Book Your Stay
 Connect and Learn More
 
 👉 Follow us on LinkedIn: OK Welcome Home Hotel LinkedIn Page👉 Read our reviews on TripAdvisor: OK Welcome Home Hotel TripAdvisor👉 Find us on Google Maps: OK Welcome Home Hotel Google Maps
+👉 Check availability and rates on Booking.com: OK Welcome Home Hotel Booking.com
 
 We look forward to welcoming you to Alva, Oklahoma!
-
-
-
-
-Added optimized README for OK Welcome Home Hotel SEO
-
